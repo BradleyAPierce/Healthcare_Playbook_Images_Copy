@@ -1,1 +1,1 @@
-# Healthcare_Playbook_Images_Copy
+# Healthcare_Playbook_Images
